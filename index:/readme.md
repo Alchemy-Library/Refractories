@@ -2,5 +2,6 @@
 - [Introduction To Refractories - Metals, Alloys, Cement and Refractory Material - Applied Chemistry 2](https://youtu.be/wlNUR9XBruI)
 - [#2-Refractory Materials II Classification and Properties II Materials Of Chemistry](https://youtu.be/9ZODEHKqsVE)
 - [Induction Furnace Lining Part 1](https://youtu.be/En_rsFuspx8)
+- [Induction Furnace Lining Part 2](https://youtu.be/gmiIjllGm9Y)
 - [Classification of Refractory](https://youtu.be/B-fDicGDPow)
 - 
